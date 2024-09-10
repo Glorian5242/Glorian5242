@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Glorian5242
+- 👀 I’m interested in learning new stuffs
+- 🌱 I’m currently learning @ Lethbridge Polytechnic, Diploma in CIT
+- 💞️ I’m looking to collaborate 
+- 📫 How to reach me email gloriankoech26@gmail.com
+- 😄 Pronouns:
+- ⚡ Fun fact: 
